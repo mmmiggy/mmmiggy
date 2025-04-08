@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @mmmiggy
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
 
-- digibyte
+- 🌱 I’m currently learning ...Digibyte
+
+
 
 - 📫 How to reach me ...downeastdigs@yahoo.com
 
